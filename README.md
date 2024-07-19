@@ -1,1 +1,1 @@
-This is P6 group
+Welcome to P6 group
